@@ -16,7 +16,7 @@ What is the nature of nothing (think about its similarity to an infinite thing, 
 Can we ever know anything for certain, if upto what point can we extend our certainty?
 What purpose does existance have, if any, and if not why is it here?
 What does freedom mean, and can we ever attain it?
-Does "Deus sive Natura" indeed play does?
+Does "Deus sive Natura" indeed play dice?
 What is the nature of time?
 What is the nature of the human mind?
 What of hume's criticism to inductive reasoning, if it is true; then can we know anything at all, if not prove it.
@@ -31,3 +31,11 @@ Why study philosophy?
 Is it the duty of a learned man to pass on his knowledge to the less learned? How far must/can/should he go to ensure that others are as wise as him?
 Is violance neccesary?
 What is the right way to live, if there is any?
+What is the difference between dream/virtual reality (VR) and the real world, if VR were made to be exactly like real life, what reasons are there to pick one over the other?
+Putting the "gross-factor" aside, what of beastiality, is it rape or not (rape is when the other party does not concent in any way)?
+If everything I say is true, then how can I say that I am lying?
+Is there such a thing as the basic unit, i.e. a unit of space or matter or time (discuss all three seperately) beyond which the said object cannot be broken down more. (Contiguos vs Continuous).
+Did something ever exist, if so did it always exist? If something did not always exist, then at what point and why did it begin to exist?
+What is the nature of the Ultimate? (Wether it be God or the ultimate nature of the universe etc). 
+What, if anything, is the essence of an object (say yourself, or perhaps the computer in front of you)?
+Define 'God'.
